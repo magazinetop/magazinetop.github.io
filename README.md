@@ -1,0 +1,1 @@
+# magazinetop.github.io
